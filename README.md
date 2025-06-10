@@ -14,4 +14,4 @@ I enjoy diving deep into wireless systems and delivering efficient, stable solut
 
 ## 📫 Contact Me
 
-✉️ Email: [world.maintenance.wm@gmail.com]
+✉️ Email: world.maintenance.wm@gmail.com
